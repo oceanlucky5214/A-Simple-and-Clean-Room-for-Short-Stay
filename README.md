@@ -1,1 +1,1 @@
-# A-Simple-and-Clean-Room-for-Short-Stay
+The room had a fairly simple bed setup, which was in line with the price point. However, the kitchen area looked nice, though I didn’t get a chance to use it. The directions provided were clear, and the door lock setup was easy to follow. Overall, the environment was clean and functional, making it a good spot for a short stay.
